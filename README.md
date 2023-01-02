@@ -1,0 +1,3 @@
+Mathematical Approach...
+#Microsoft
+# -6Companies30days
